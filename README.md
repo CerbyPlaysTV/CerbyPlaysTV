@@ -1,0 +1,16 @@
+- 👋 Hi, I’m @CerbyPlaysTV
+- 👀 I’m interested in Sports, Games, Cooking, and any outdoor activity.
+- 🌱 I’m currently learning Video Editing, Graphic Designing, home improvement.
+- 💞️ I’m looking to collaborate on Video Games and streaming.
+- 📫 How to reach me Content- CerbyPlaysTV@gmail.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: A cloud weighs around a million tonnes. ...
+Giraffes are 30 times more likely to get hit by lightning than people. ...
+Identical twins don't have the same fingerprints. ...
+Earth's rotation is changing speed. ...
+Your brain is constantly eating itself.
+
+<!---
+CerbyPlaysTV/CerbyPlaysTV is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
